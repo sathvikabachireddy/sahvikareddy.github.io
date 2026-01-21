@@ -1,2 +1,2 @@
-# Chetan50.github.io
+# Sathvikareddy.github.io
 Personal Website
